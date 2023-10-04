@@ -23,7 +23,7 @@ Interested in turning your software idea into reality? Get in touch with us, and
 
 🔗 [Visit our official website](https://www.trietech.com)
 
-📧 Email: [info@trietech.com](mailto:trietechconsulting@gmail.com)
+📧 Email: [trietechconsulting@gmail.com](mailto:trietechconsulting@gmail.com)
 
 ---
 
